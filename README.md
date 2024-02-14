@@ -69,3 +69,7 @@ Instructions:
 
 
 
+
+https://github.com/metoajagu/Yahtzee/assets/157914585/26f839aa-f096-4baa-8604-57a8a357617d
+
+
